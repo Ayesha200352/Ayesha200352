@@ -14,7 +14,7 @@
 
 ## 🌐 Connect with me
 
-[LinkedIn](https://www.linkedin.com/in/ayesha-kodithuwakku) | [GitHub](https://github.com/Ayesha200352)
+[LinkedIn](https://www.linkedin.com/in/https://www.linkedin.com/in/ayesha-kodithuwakku-3b1065346?utm_source=share_via&utm_content=profile&utm_medium=member_android) | [GitHub](https://github.com/Ayesha200352)
 
 ---
 
