@@ -26,9 +26,5 @@
 
 ---
 
-## 📈 GitHub Stats
-
-![GitHub Stats](https://github-readme-stats.vercel.app/api?username=Ayesha200352&show_icons=true&theme=default)
-
 
 
